@@ -1,3 +1,3 @@
-You can watch our demo video from the link.
+You can watch our demo video from this link.
 
-https://youtu.be/G7h5shEc178
+https://youtu.be/gVhD5zFvkh0
